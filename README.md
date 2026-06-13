@@ -1,1 +1,0 @@
-# Varnay-Rp-Bot
